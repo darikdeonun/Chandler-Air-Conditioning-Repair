@@ -1,1 +1,2 @@
-# Chandler-Air-Conditioning-Repair
+# Chandler Air Conditioning Repair
+If your air conditioner is running, but not lowering temperatures inside, one issue could be a blocked or clogged condenser coil. When operating correctly, the condenser fan draws air into the outdoor unit through the condenser coil to pull heat energy out of your home. The AC Repair process is essentially the process of restoring an [Chandler Air Conditioning Repair](https://stevesultimateair.com/) to working order. Though each unit requires a unique approach to service, the general method involves inspecting the various components of the system, servicing what needs servicing and performing any repairs that are deemed necessary.
